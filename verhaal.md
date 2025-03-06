@@ -1,1 +1,2 @@
 De sporthal. Mark en David strijden in de finale van het pingpongtoernooi. De score is 10-10, de spanning stijgt. Mark slaat scherp – de bal raakt net de tafel en dwingt David tot een fout. Mark wint en heft zijn batje triomfantelijk in de lucht met een glimlach.
+Plotseling valt het licht in de sporthal uit. Een seconde van complete duisternis volgt. Wanneer de lichten weer aangaan, ligt de pingpongbal stil op de grond – en David is verdwenen.
